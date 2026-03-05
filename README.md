@@ -7,3 +7,8 @@ This project features a sci-fi documentary about harmonious human-AI symbiosis, 
 The film shows AI as humanity’s ally, not a rival, blending real-life scenes with futuristic visuals to redefine coexistence. The 9 sets of qigong and taekwondo are fully adapted for children, the elderly, women, and office workers, with a featured routine The Forest King’s Wellness Dance designed for Optimus.
  
 Humanoid robots lead global wellness in families, communities, and offices, delivering tangible health support across all demographics and uniting the world in healthy living through symbiotic collaboration.
+Contact
+Email: 2760746824@qq.com
+WeChat: seas12790
+ 
+Welcome for global cooperation.
