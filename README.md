@@ -9,6 +9,5 @@ The film shows AI as humanity’s ally, not a rival, blending real-life scenes w
 Humanoid robots lead global wellness in families, communities, and offices, delivering tangible health support across all demographics and uniting the world in healthy living through symbiotic collaboration.
 Contact
 Email: 2760746824@qq.com
-WeChat: seas12790
- 
+
 Welcome for global cooperation.
