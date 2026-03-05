@@ -1,4 +1,6 @@
-Symbiotic Era: Human-AI Coexistence · Global Wellness for All
+AI Digital Human Robot Health Project
+
+Keywords: AI, Digital Human, Humanoid Robot, Health Exercise, Fitness Qigong, Wellness, Sci-Fi Movie, Future Technology, Robot Health Care, Creative Film, AI Creator, Robot Fitness, Global Open Source, Tesla Optimus, Forest King's Wellness Dance Era: Human-AI Coexistence · Global Wellness for All
  
 This project features a sci-fi documentary about harmonious human-AI symbiosis, plus a tailored wellness qigong system for humanoid robots like Tesla Optimus. It leads people of all ages, genders, and nationalities worldwide to exercise together, using technology to empower universal health.
  
